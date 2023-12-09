@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vitorinoaap
-- 👀 I’m interested in programing (python)
+- 😜 I'm sixty and programing yet
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on everthing
 - 📫 How to reach me ...
